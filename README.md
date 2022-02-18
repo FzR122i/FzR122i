@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FzR122i
+- 👀 I’m interested in technology.
+- 🌱 I’m currently learning codes
+- Never Stop learning.
